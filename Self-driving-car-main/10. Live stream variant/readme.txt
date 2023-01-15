@@ -1,5 +1,3 @@
-Link to live stream:
-https://youtu.be/NUjN2Mln_Gg
 
 Instructions:
 
